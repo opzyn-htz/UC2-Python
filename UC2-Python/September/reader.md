@@ -1,0 +1,1 @@
+cara, tamo indo né
