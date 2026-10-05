@@ -1,1 +1,1 @@
-cara, tamo indo né
+cara, tamo indo né, tenha duvidas de TODOS os codigos KKKKKKKKKKKKKKKKKKKKKKKKKKKK
