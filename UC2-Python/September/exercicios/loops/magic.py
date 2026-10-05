@@ -45,3 +45,4 @@ while p_num <=101:
 
     if tab_atual >=11:
         tab_atual = 1
+#mango
